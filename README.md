@@ -1,7 +1,7 @@
 # How-to-extract-contact-information-from-Justdial-website.
 How to extract contact information from Justdial website., justdial is popular directory website..so our software is easy to use for extract contact information for any lead.
 
-Check software on below link
+Check software on below link for buy premium software 
     https://codecanyon.net/item/just-dial-scrapper/27681250
 
 <h4>100% working software - Just dial scraper with Contact number </h4>
